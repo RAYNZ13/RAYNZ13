@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @RAYNZ13
+     - 👋 Hi, I’m @RAYNZ13
 - 👀 I’m interested in learning new things and exploring new technologies
 - 🌱 I’m currently learning design and web dev
-- 💞️ I’m looking to collaborate any design related problems and free to freelance as a canva designer
+- 💞️ I’m looking to collaborate any design related problems and free to freelance as a Graphic Designer
 - 📫 How to reach me
 - LinkedIn  : https://www.linkedin.com/in/rayyan-ahmed-1b1b68243/
 - Instagram : https://www.instagram.com/rayn_ahmd_13/
